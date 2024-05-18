@@ -1,1 +1,1 @@
-# Andhradining-Assignment
+# Refer img folder for output screen.
